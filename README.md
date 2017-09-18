@@ -1,4 +1,5 @@
 # PracticeHub
 
 ###John and Josh
-###Now our project is screwed.
+
+Hey Josh, this is pretty coool! Also , your child has some THICC thighs.
